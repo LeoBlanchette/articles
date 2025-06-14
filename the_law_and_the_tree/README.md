@@ -18,6 +18,19 @@ This will be important in considering the tree that Adam and Eve ate from.
 
 ### Food = Doctrine Examples 
 
-> Matthew 16:11-12 - How is it that ye do not understand that I spake it not to you concerning bread, that ye should beware of the leaven of the Pharisees and of the Sadducees? Then understood they how that he bade them not beware of the leaven of bread, but of the doctrine of the Pharisees and of the Sadducees.
+> Matthew 16:11-12 - How is it that ye do not understand that I spake it not to you concerning bread, that ye should beware of the leaven of the Pharisees and of the Sadducees? Then understood they how that **he bade them not beware of the leaven of bread, but of the doctrine of the Pharisees and of the Sadducees**.
 
+In a deeper thread, but consistent with symbolism:
 
+**JESUS = THE WORD** (John 1:14)
+**JESUS = BREAD / WINE** (John 6:54-58)
+
+The **WORD** is **FOOD** to be **LEARNED**, as *doctrine* is *food* and *eating* becomes *learning*. 
+
+## Judging Similitudes: Tree of Life (Jesus) & Tree of Knowledge of Good and Evil (The Law)
+
+A crucial principle of comparison we'll employ in this study is based on the weight and authority of chief elements. We hold that there cannot be multiple, distinct versions of the same core element. Instead, elements of lesser authority or weight serve as representations of the chief elements, meaning they are fundamentally the same concept expressed in different forms.
+
+So here are the core symbolisms first. 
+
+![Jesus = Tree of Life; Moses = Tree of Knowledge of Good and Evil](images/old-new-covenant-trees.png)
