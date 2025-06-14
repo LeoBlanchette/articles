@@ -172,7 +172,7 @@ We find our answer in what we found above: The Tree of the Knowledge of Good and
 
 > John 5:45 - Do not think that I will accuse you to the Father: there is one that accuseth you, even Moses, in whom ye trust.
 
-Yet we know the accuser to be Satan. So does Moses or Satan accuse? Remember that Moses' staff became a serpent, and he put up the bronze serpent as a symbol of healing. The accuser is in the law. Moses has a few associations with serpent symbolism. (Remember too Jude 1:9 in light of John 5:45 and the False Prophet in the Book of Revelation)
+Yet we know the accuser to be Satan. So does Moses or Satan accuse? Remember that Moses' staff became a serpent, and he put up the bronze serpent which later became an idol (2 Kings 18:4). The accuser is in the law. Moses has a few associations with serpent symbolism. (Remember too Jude 1:9 in light of John 5:45 and the False Prophet in the Book of Revelation)
 
 #### Law Given by Angels
 
@@ -194,7 +194,7 @@ The symbol of the serpent being associated with the tree is shown with the Phari
 
 > Matthew 23:33 - Ye serpents, ye generation of vipers, how can ye escape the damnation of hell?
 
-It was the Pharisees who tried to bait the early Christians (partakers of the Tree of Life) to remain associated with the Law (the Tree of the Knowledge of Good and Evil).
+It was the Pharisees who tried to bait the early Christians (partakers of the Tree of Life) to associate with the Law (the Tree of the Knowledge of Good and Evil).
 
 > Acts 15:5 -  But there rose up certain of the sect of the Pharisees which believed, saying, That it was needful to circumcise them, and to **command them to keep the law of Moses**.
 
@@ -214,7 +214,7 @@ Remember concerning the Law:
 
 > 1 Timothy 1:8-10 - But we know that the law is good, if a man use it lawfully; Knowing this, that **the law is not made for a righteous man, but for the lawless and disobedient,** for the ungodly and for sinners, for unholy and profane, for murderers of fathers and murderers of mothers, for manslayers, For whoremongers, for them that defile themselves with mankind, for menstealers, for liars, for perjured persons, and if there be any other thing that is contrary to sound doctrine;
 
-Knowing the arguments often given, I can easily hear someone debate this: "It says the Law is good if a man use it lawfully". The Man who uses the Law lawfully is Jesus (a Man, the men who). Nobody else can fulfill it.
+Knowing the arguments often given, I can easily hear someone debate this: "It says the Law is good if a man use it lawfully". The Man who uses the Law lawfully is Jesus (a Man). Nobody else can fulfill it.
 
 It is also without understanding that people promote the Law of Moses within the Christian flock: 
 
@@ -244,9 +244,9 @@ Original article here https://github.com/LeoBlanchette/articles/tree/main/the_la
 
 ## BONUS 
 
-You may have notice that grapes were on both trees. But grapes grow on vines! 
+You may have notice that grapes were on both trees in the illustrations (AI Generated). But grapes grow on vines! 
 
-The book of Enoch as well as a few other extra-biblical books reveal that the original fruit was grape-like, though being a tree. Likewise, Jesus blood is associated with the grap. 
+The book of Enoch as well as a few other extra-biblical books reveal that **the original fruit was grape-like**, though being a tree. Likewise, Jesus blood is associated with the grap. 
 
 > Enoch [32:3] And I came to the Garden of Righteousness, and from afar off trees more numerous than these trees and great--two trees there, very great, beautiful, and glorious, and magnificent, and the tree of knowledge, whose holy fruit they eat and know great wisdom. [32:4] That tree is in height like the fir, and its leaves are like (those of) the Carob tree: **and its fruit is like the clusters of the vine**, very beautiful: and the fragrance of the tree penetrates afar. [32:5] Then I said: 'How beautiful is the tree, and how attractive is its look!' [32:6] Then Raphael the holy angel, who was with me, answered me and said: **'This is the tree of wisdom, of which thy father old (in years) and thy aged mother, who were before thee, have eaten, and they learnt wisdom and their eyes were opened, and they knew that they were naked and they were driven out of the garden.'**
 
