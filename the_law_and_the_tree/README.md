@@ -57,7 +57,7 @@ Compare:
 
 > Deuteronomy 8:3 - And he humbled thee, and suffered thee to hunger, and fed thee with **manna**, which thou knewest not, neither did thy fathers know; that he might make thee know that **man doth not live by bread only, but by every word that proceedeth out of the mouth of the LORD doth man live.**
 
-And so we see a repetition: The **manna**'s symbolism represents **the Word**, and the Word is the reality of the symbol, to be taken as having higher authority and literalism. In this case, we see Moses compare manna to the Word, and later the Word is Jesus. Therefore **manna = Jesus**. But the manna was not the literal life-giving food, as it is plainly stated later that those who ate of the manna died (John 6:49-51). So there was no life-giving quality to the actual symbolic physical element, but rather the reality of the giving power was in the Word itself.
+And so we see a repetition: The **manna**'s symbolism represents **the Word**, and the Word is the reality of the symbol, to be taken as having higher authority and literalism. In this case, we see Moses compares manna to the Word, and later the Word is Jesus. Therefore **manna = Jesus**. But the manna was not the literal life-giving food, as it is plainly stated later that those who ate of the manna died (John 6:49-51). So there was no life-giving quality to the actual symbolic physical element, but rather the reality of the life-giving power was in the Word itself.
 
 With this strong principle applied, **The Tree of Life** must represent Jesus the same as the Manna did. This is because Jesus equated himself with **Life**. Therefore there **cannot be two separate entities which are a source of life**, but rather just one entity, with the lesser symbol pointing to the greater.
 
@@ -168,6 +168,12 @@ Many astute readers wonder why, in Genesis, Cain and Abel were sacrificing for t
 
 We find our answer in what we found above: The Tree of the Knowledge of Good and Evil taught them how to sacrifice, the same as the Law of Moses.
 
+#### One Who Accuses You 
+
+> John 5:45 - Do not think that I will accuse you to the Father: there is one that accuseth you, even Moses, in whom ye trust.
+
+Yet we know the accuser to be Satan. So does Moses or Satan accuse? Remember that Moses' staff became a serpent, and he put up the bronze serpent as a symbol of healing. The accuser is in the law. Moses has a few associations with serpent symbolism. (Remember too Jude 1:9 in light of John 5:45 and the False Prophet in the Book of Revelation)
+
 #### Law Given by Angels
 
 The Law was given by angels, and predated Moses.
@@ -235,3 +241,13 @@ This article was very clear in isolating the Law as that very thing which convic
 It is a deadly thing to promote the practice of the Jewish law to Christians, and deceiving people into this is one of the greater sins you can make in this world, as the serpent himself and the Pharisees were associated with such a practice.
 
 Original article here https://github.com/LeoBlanchette/articles/tree/main/the_law_and_the_tree 
+
+## BONUS 
+
+You may have notice that grapes were on both trees. But grapes grow on vines! 
+
+The book of Enoch as well as a few other extra-biblical books reveal that the original fruit was grape-like, though being a tree. Likewise, Jesus blood is associated with the grap. 
+
+> Enoch [32:3] And I came to the Garden of Righteousness, and from afar off trees more numerous than these trees and great--two trees there, very great, beautiful, and glorious, and magnificent, and the tree of knowledge, whose holy fruit they eat and know great wisdom. [32:4] That tree is in height like the fir, and its leaves are like (those of) the Carob tree: **and its fruit is like the clusters of the vine**, very beautiful: and the fragrance of the tree penetrates afar. [32:5] Then I said: 'How beautiful is the tree, and how attractive is its look!' [32:6] Then Raphael the holy angel, who was with me, answered me and said: **'This is the tree of wisdom, of which thy father old (in years) and thy aged mother, who were before thee, have eaten, and they learnt wisdom and their eyes were opened, and they knew that they were naked and they were driven out of the garden.'**
+
+https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/1-enoch/1-enoch.md 
