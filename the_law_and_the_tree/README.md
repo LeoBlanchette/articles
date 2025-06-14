@@ -2,6 +2,8 @@
 
 The article that follows is a **magnicient revelation**. It is not commonly known. It will increase your understanding of what the **New Covenant** has saved us from, and how **deadly** the **Old Covenant** can be to those who take it up without qualification. 
 
+![Tree of Life and Tree of Knowledge of Good and Evil](images/the-two-trees.png)
+
 This article presents a concept without embellishment, offering a revelation that's often overlooked. It rigorously compares scriptures, and is not merely an exposition. 
 
 While comparisons between the Law of Moses and the Tree of the Knowledge of Good and Evil have been made before, this review shows that they can be considered the same thing. 
