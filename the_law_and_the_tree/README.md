@@ -35,7 +35,7 @@ A crucial principle of comparison we'll employ in this study is based on the wei
 
 So here are the core symbolisms first. 
 
-![Jesus = Tree of Life; Moses = Tree of Knowledge of Good and Evil](images/old-new-covenant-trees.png)
+
 
 
 ### JESUS = THE LIFE 
@@ -90,7 +90,17 @@ Just as the Tree of Life represented Jesus, the Tree of the Knowledge of Good an
 
 #### Became Gods 
 
+This is the first and most binding proof that the Tree and the Law are the same: 
 
+> John 10:35 - If he called them gods, unto whom the word of God came, and the scripture cannot be broken;
+
+Jesus here refers to the Written Law (**Scripture**)
+
+Compare to: 
+
+> Genesis 3:5,22, - [5] For God doth know that in the day ye eat thereof, then your eyes shall be opened, and **ye shall be as gods**, knowing good and evil. [22] And the Lord God said, Behold, the **man is become as one of us**, to know good and evil: and now, lest he put forth his hand, and take also of the tree of life, and eat, and live for ever: 
+
+So do BOTH the TREE and THE LAW have the same power of turning man into gods? It is more logical to say that just one thing has this power: *The Law* (**Angel's Food**).
 
 #### Eyes Opened, Knowing Sin 
 
