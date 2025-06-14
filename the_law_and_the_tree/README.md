@@ -251,3 +251,7 @@ The book of Enoch as well as a few other extra-biblical books reveal that **the 
 > Enoch [32:3] And I came to the Garden of Righteousness, and from afar off trees more numerous than these trees and great--two trees there, very great, beautiful, and glorious, and magnificent, and the tree of knowledge, whose holy fruit they eat and know great wisdom. [32:4] That tree is in height like the fir, and its leaves are like (those of) the Carob tree: **and its fruit is like the clusters of the vine**, very beautiful: and the fragrance of the tree penetrates afar. [32:5] Then I said: 'How beautiful is the tree, and how attractive is its look!' [32:6] Then Raphael the holy angel, who was with me, answered me and said: **'This is the tree of wisdom, of which thy father old (in years) and thy aged mother, who were before thee, have eaten, and they learnt wisdom and their eyes were opened, and they knew that they were naked and they were driven out of the garden.'**
 
 https://github.com/scrollmapper/bible_databases_deuterocanonical/blob/master/sources/en/1-enoch/1-enoch.md 
+
+#### Share on Twitter
+
+`#NewCovenant #JesusChrist brings #Salvation from the #OldCovenant #LawOfMoses. A #BiblicalRevelation on the #TreeOfKnowledge, it's vital #Theology for #ChristianFreedom. #BibleStudy reveals #GraceVsLaw, exposing #Judaizing.`
