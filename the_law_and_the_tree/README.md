@@ -35,7 +35,7 @@ A crucial principle of comparison we'll employ in this study is based on the wei
 
 So here are the core symbolisms first. 
 
-
+![Jesus = Tree of Life; Moses = Tree of Knowledge of Good and Evil](images/old-new-covenant-trees.png)
 
 
 ### JESUS = THE LIFE 
