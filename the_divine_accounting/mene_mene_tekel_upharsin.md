@@ -1,4 +1,3 @@
----
 # Mene, Mene, Tekel, Upharsin
 
 **A Divine Accounting Judgment: Daniel 5**
