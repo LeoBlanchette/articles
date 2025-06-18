@@ -5,7 +5,7 @@
 
 ---
 
-## ⚖️ Full Translation & Theological Meaning
+## Full Translation & Theological Meaning
 
 These four Aramaic words appeared in Daniel 5:25 as mysterious writing on the wall during King Belshazzar's feast. Daniel interpreted them by divine insight, revealing a complete judgment formula.
 
@@ -19,7 +19,7 @@ These four Aramaic words appeared in Daniel 5:25 as mysterious writing on the wa
   > "God hath numbered thy kingdom, and finished it."
 - **Implication**: Your stewardship has been fully evaluated. The end of your time is fixed.
 
-✅ **This represents the accounting or summing up of one’s rule or responsibilities.**
+**This represents the accounting or summing up of one’s rule or responsibilities.**
 
 ---
 
@@ -31,7 +31,7 @@ These four Aramaic words appeared in Daniel 5:25 as mysterious writing on the wa
   > "Thou art weighed in the balances, and art found wanting."
 - **Implication**: The individual has been measured morally or spiritually — and is found deficient.
 
-✅ **This symbolizes the evaluation of the steward’s worthiness or faithfulness.**
+**This symbolizes the evaluation of the steward’s worthiness or faithfulness.**
 
 ---
 
@@ -44,11 +44,11 @@ These four Aramaic words appeared in Daniel 5:25 as mysterious writing on the wa
 - **Biblical Interpretation (Daniel 5:28)**:  
   > "PERES; Thy kingdom is divided, and given to the Medes and Persians."
 
-✅ **This signifies the forfeiture of stewardship and the transfer of authority to another.**
+**This signifies the forfeiture of stewardship and the transfer of authority to another.**
 
 ---
 
-## 📘 Summary Table
+## Summary Table
 
 | Word       | Symbolic Value           | Interpretation                                     |
 |------------|---------------------------|---------------------------------------------------|
@@ -58,7 +58,7 @@ These four Aramaic words appeared in Daniel 5:25 as mysterious writing on the wa
 
 ---
 
-## 🧠 Modern Equivalent Summary
+## Modern Equivalent Summary
 
 > **God has counted your stewardship, evaluated your value, and decreed that what you ruled will be broken and given to others.**
 
@@ -66,7 +66,7 @@ This phrase is the foundation of a divine judgment pattern — **Counted → Wei
 
 ---
 
-## 🏛️ Foundation for Divine Accounting Framework
+## Foundation for Divine Accounting Framework
 
 - MENE: Entrusted resources and time.
 - TEKEL: Judgment of value, productivity, or righteousness.
