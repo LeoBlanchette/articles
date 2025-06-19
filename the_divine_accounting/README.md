@@ -7,6 +7,13 @@ This isn't numerology. It's divine accounting.
 This is a full breakdown of the **Counted** -> **Weighed** -> **Divided** system revealed in Daniel 5 and echoed in Revelation. Using consistent biblical weights (minas, shekels, gerahs), we show how *666 is not mystical*--it's a **prophetic accounting formula** tied to **divine judgment** and **inheritance**.
 We'll demonstrate how the Beast is judged like Belshazzar, how the 10 horns match the 10 minas (600 Shekels), and how faithful stewards (**144,000**) inherit what is stripped from the wicked. 
 
+So in this discussion:
+
+- A breakdown of Daniel’s **Mene, Tekel, Peres** judgment formula
+- How **666** mirrors this structure using biblical weights and measures
+- Why the **144,000** inherit what the Beast loses
+- Consistent math behind biblical justice and redistribution
+
 ## How to Count the Beast's Number
 
 ### The Puzzle
@@ -42,6 +49,13 @@ In Daniel 5, **"the man who hath understanding"** demonstrates how to **count th
 **Notice:** The actions are past-tense. Not "count, weigh, divide", but rather "count**ed**, weigh**ed**, divid**ed**". 
 
 ### The Framework 
+
+>   Unlike numerology or gematria, this method:
+> - Uses only **biblical units**: minas, shekels, gerahs (Ezekiel 45:12)
+> - Anchors values to **canonical judgment scenes** (Daniel 5, Revelation 13)
+> - Produces **measurable, transferable results**--like the 144,000 inheritance
+> - Requires **no assumptions**, only interpretation of what's already there
+
 
 ### The Weights, Measures, and Monetary Standard
 
@@ -83,7 +97,7 @@ Since the evidence is strong that this scripture (Revelation 13:18) is pointing 
 - **Tekel** is a **shekel**--so its value is simply **1 shekel**.
 - **Peres (Upharsin)** means "divided," and is interpreted as **half a mina**, which is **30 shekels**.
 
-In Revelation, the Beast's number is given as **600 + 60 + 6**, matching the same structure:
+In Revelation, the Beast's number is given as **600 + 60 + 6**, matching the same **Mene / Tekel / Peres** triplet structure shown in Daniel:
 - **600 shekels = 10 minas**
 - **60 shekels = 1 mina**
 - **6 shekels** as a final divided value
@@ -141,7 +155,13 @@ These results aren't random. They match exactly with the **tribal structure of I
 
 This confirms that the **Weighed and Divided values are not just symbolic--they are directly tied to inheritance and judgment in favor of Israel**.
 
-Multiplication effectively reverses the act of division, allowing us to reconstruct the original grouped quantity--and what is now being **transferred or stripped**.
+Multiplying **Weighed x Divided** helps reconstruct the total value *being reassigned*.  
+In Daniel: **20 x 600 = 12,000**  
+In Revelation: **1,200 x 120 = 144,000**
+
+This isn't numerology. This multiplication reveals the reverse of Peres--the reassignment of what was divided.
+
+These totals match Israel's structure: **12,000 x 12 = 144,000**, confirming that divine redistribution follows precise math.
 
 The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast (Revelation 11:15, Luke 12:32, Revelation 2:27). This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
 
@@ -169,7 +189,7 @@ This directly aligns with the symbolic **10 horns** of the Beast:
 
 "Let him that hath understanding **count the number of the beast**: for it is the number of **a man**; "
 
-We have shown the method of how it the number is counted, and the system at work, but can we "count the number of the beast", or identify "the man"? 
+We have shown the method by which the number is counted, and the system at work, but can we "count the number of the beast", or identify "the man"? 
 
 > **Psalms 90:12** - So teach us to **number our days**, that we may **apply our hearts unto wisdom**. 
 
@@ -179,17 +199,7 @@ It is better not to presume to say what has been counted or named, but rather we
 
 > **Job 3:16** - Let me be weighed in an even balance, that God may know mine integrity. 
 
-### Numerical Confirmation from 144,000 and 666
-
-**NOTICE** 144,000 / 6 / 6 / 6 = 666.666... Or 144000 / 6^3 = 666.666...
-
-This is not numerology--it's a verification of correlation. In mathematical terms, this shows that **144,000 and 666 are not just symbolically related--they are functionally scaled**.
-
-- **144,000** is the inheritance of the righteous in Revelation (12,000 per tribe).
-- **666** is the judgment number of the Beast.
-- The result--**666.666...**--reveals a direct link between the final number of the faithful and the full exposure of the unfaithful.
-
-This shows that divine judgment operates with **mathematical precision**--both in reward and in stripping. The same measuring system governs both the condemnation of the Beast and the glorification of the faithful.
+See Proverbs 8:14. 
 
 ## The Study, The Explanation 
 
@@ -314,3 +324,46 @@ Thus, whether in prophecy or parable, **divine judgment follows the same mathema
 
 Each of these passages reinforces the theme of **divine reversal**—where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful, either as **judgment** or as a form of **righteous inheritance**. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
 
+## BONUS MATERIAL 
+
+The old Gematria can still be fun. Would you like to calculate The Number of Your Name! on https://www.gematrix.org/ ... let us know what you find out! 
+
+Okay, here are the improved bonus material suggestions in Markdown (.md) format, excluding the quick poll, and suitable for a Reddit post.
+
+---
+
+### BONUS MATERIAL
+
+#### The Number of YOUR Name!
+
+The old Gematria method can still be fun. Would you like to calculate The Number of Your Name! on [https://www.gematrix.org/](https://www.gematrix.org/) ... let us know what you find out!
+
+---
+
+#### The 'Mene, Tekel, Peres' Challenge: YOUR LIFE 
+
+If you were to apply the 'Counted, Weighed, Divided' judgment to your own life (not literally, of course, but as a spiritual exercise), what would represent:
+
+* **Counted (Mene):** The life, gifts, opportunities, and resources you've been given?
+* **Weighed (Tekel):** How you've stewarded them or been assessed?
+* **Divided (Peres):** What you hope to gain or what you believe will be taken away if unfaithful?
+
+*Share as much or as little as you're comfortable with. This is for reflection, not judgment!*
+
+---
+
+#### Did This Article Miss a Key Scripture? 
+
+Alot of scriptures were recalled to build this case. Did you read through and think, 'Hey, what about [insert specific verse here]?' If you know of other Bible verses that powerfully reinforce the 'wealth of the wicked transferred to the righteous' theme, or the 'Counted/Weighed/Divided' judgment, drop them in the comments! 
+
+---
+
+#### Interesting Random Numerical Confirmation from 144,000 and 666
+
+`144,000 / 6 / 6 / 6 = 666.666... `
+
+Or 
+
+`144000 / 6^3 = 666.666...`
+
+Dividing **144,000** by **6** exactly **3** times gives us **666.666..?** What does that tell you mathematically? 
