@@ -165,7 +165,7 @@ This directly aligns with the symbolic **10 horns** of the Beast:
 > having seven heads and **ten horns**, and upon his horns **ten crowns**,  
 > and upon his heads the **name of blasphemy**.
 
-### Counting the Number 
+### Counting the Number, Identifying the Man
 
 "Let him that hath understanding **count the number of the beast**: for it is the number of **a man**; "
 
