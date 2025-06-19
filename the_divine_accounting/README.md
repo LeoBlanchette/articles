@@ -143,7 +143,7 @@ This confirms that the **Weighed and Divided values are not just symbolic--they 
 
 Multiplication effectively reverses the act of division, allowing us to reconstruct the original grouped quantity--and what is now being **transferred or stripped**.
 
-The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast. This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
+The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast (Revelation 11:15, Luke 12:32, Revelation 2:27). This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
 
 See the Process--Converted to Minas
 
@@ -165,7 +165,19 @@ This directly aligns with the symbolic **10 horns** of the Beast:
 > having seven heads and **ten horns**, and upon his horns **ten crowns**,  
 > and upon his heads the **name of blasphemy**.
 
-We are not taking liberties in connecting the 10 minas to 10 horns, as you will see in the Parable of the Minas below. 
+### Counting the Number 
+
+"Let him that hath understanding **count the number of the beast**: for it is the number of **a man**; "
+
+We have shown the method of how it the number is counted, and the system at work, but can we "count the number of the beast", or identify "the man"? 
+
+> **Psalms 90:12** - So teach us to **number our days**, that we may **apply our hearts unto wisdom**. 
+
+This scripture, Psalms 90:12 fits the subject well, if you read the entire context: https://www.kingjamesbibleonline.org/Psalms-90-12/
+
+It is better not to presume to say what has been counted or named, but rather we have identified the system wherein it is done. God alone knows the hearts and weighs the spirits. He is our life, and length of our days. 
+
+> **Job 3:16** - Let me be weighed in an even balance, that God may know mine integrity. 
 
 ### Numerical Confirmation from 144,000 and 666
 
@@ -301,3 +313,4 @@ Thus, whether in prophecy or parable, **divine judgment follows the same mathema
 ---
 
 Each of these passages reinforces the theme of **divine reversal**—where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful, either as **judgment** or as a form of **righteous inheritance**. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
+
