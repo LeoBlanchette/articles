@@ -369,3 +369,7 @@ Or
 `144000 / 6^3 = 666.666...`
 
 Dividing **144,000** by **6** exactly **3** times gives us **666.666..?** What does that tell you mathematically? 
+
+Original article here: 
+
+https://github.com/LeoBlanchette/articles/tree/main/the_divine_accounting
