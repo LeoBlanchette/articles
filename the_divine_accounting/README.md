@@ -1,5 +1,7 @@
 # 666 Decoded: How Daniel's Judgment Formula Exposes the Beast 
 
+![Counted, Weighed, Divided](images/counted-weighed-divided.png)
+
 This isn't numerology. It's divine accounting.
 666 isn't a mystery number--it's a verdict. The Beast was judged with the same prophetic formula used on Belshazzar in Daniel 5. Here's how it all adds up.
 
