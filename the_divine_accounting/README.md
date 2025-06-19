@@ -77,7 +77,7 @@ The original language preserved this separation, and so should we.
 While both add to the same total, the separation is intentional and meaningful.
 
 > **Note on the Greek Text:**  
-> The phrase **"six hundred threescore and six"** in Revelation 13:18 is rendered in the original Greek as *hexakosioi hexekonta hex* — **three distinct cardinal terms** for *600*, *60*, and *6*. This is not a compact numeral (e.g. `χξϛ` = 666), but a deliberate, **tripartite construction**.  
+> The phrase **"six hundred threescore and six"** in Revelation 13:18 is rendered in the original Greek as *hexakosioi hexekonta hex* -- **three distinct cardinal terms** for *600*, *60*, and *6*. This is not a compact numeral (e.g. `χξϛ` = 666), but a deliberate, **tripartite construction**.  
 >  
 > The separation is textual, not interpretive. This precision implies a structural breakdown and invites analysis along those divisions. Since our model depends on the integrity of the Counted -> Weighed -> Divided formula, this linguistic partition is **foundational, not optional**.
 
