@@ -37,9 +37,9 @@ So the full judgment process is clearly shown:
 |-----------|-------|----------|
 | Counted   | Weighed | Divided |
 
-In Daniel 5, **"the man who hath understanding"** demonstrates how to **count the number**—just as Revelation 13:18 commands.
+In Daniel 5, **"the man who hath understanding"** demonstrates how to **count the number**--just as Revelation 13:18 commands.
 
-**Notice:** The actions are past-tense. Not "count, weigh, divide, but rather "count**ed**, weigh**ed**, divid**ed**". 
+**Notice:** The actions are past-tense. Not "count, weigh, divide", but rather "count**ed**, weigh**ed**, divid**ed**". 
 
 ### The Framework 
 
@@ -62,6 +62,12 @@ That is: **600**, **60**, and **6**--not simply "666" as a lump sum.
 The original language preserved this separation, and so should we.  
 While both add to the same total, the separation is intentional and meaningful.
 
+> **Note on the Greek Text:**  
+> The phrase **"six hundred threescore and six"** in Revelation 13:18 is rendered in the original Greek as *hexakosioi hexekonta hex* — **three distinct cardinal terms** for *600*, *60*, and *6*. This is not a compact numeral (e.g. `χξϛ` = 666), but a deliberate, **tripartite construction**.  
+>  
+> The separation is textual, not interpretive. This precision implies a structural breakdown and invites analysis along those divisions. Since our model depends on the integrity of the Counted -> Weighed -> Divided formula, this linguistic partition is **foundational, not optional**.
+
+
 Since the evidence is strong that this scripture (Revelation 13:18) is pointing back to the judgment scene in Daniel 5,  we can confidently conclude that this is another instance of **Mene Mene Tekel Upharsin**--a divine audit rendered in prophetic weights.
 
 ### Base Shekel Totals for Each Judgment
@@ -80,7 +86,7 @@ Since the evidence is strong that this scripture (Revelation 13:18) is pointing 
 In Revelation, the Beast's number is given as **600 + 60 + 6**, matching the same structure:
 - **600 shekels = 10 minas**
 - **60 shekels = 1 mina**
-- **6 shekels** as a final weighed and divided remnant
+- **6 shekels** as a final divided value
 
 These values use the consistent biblical weight standard from Ezekiel 45:12.
 
@@ -135,9 +141,9 @@ These results aren't random. They match exactly with the **tribal structure of I
 
 This confirms that the **Weighed and Divided values are not just symbolic--they are directly tied to inheritance and judgment in favor of Israel**.
 
-Multiplication reverses the judgment logic: if something was **divided**, then multiplying reveals what was originally assigned--and what is now being **transferred or stripped**.
+Multiplication effectively reverses the act of division, allowing us to reconstruct the original grouped quantity--and what is now being **transferred or stripped**.
 
-The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast. This is implied that in the framework--"divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
+The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast. This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
 
 See the Process--Converted to Minas
 
@@ -163,7 +169,7 @@ We are not taking liberties in connecting the 10 minas to 10 horns, as you will 
 
 ### Numerical Confirmation from 144,000 and 666
 
-**NOTICE** 144,000 / 6 / 6 / 6 = 666.666...**. Or 144000 / 6^3 = 666.666...
+**NOTICE** 144,000 / 6 / 6 / 6 = 666.666... Or 144000 / 6^3 = 666.666...
 
 This is not numerology--it's a verification of correlation. In mathematical terms, this shows that **144,000 and 666 are not just symbolically related--they are functionally scaled**.
 
