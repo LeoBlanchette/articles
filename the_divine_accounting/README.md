@@ -348,10 +348,6 @@ Compare Enoch...
 
 ## BONUS MATERIAL 
 
-The old Gematria can still be fun. Would you like to calculate The Number of Your Name! on https://www.gematrix.org/ ... let us know what you find out! 
-
----
-
 #### The Number of YOUR Name!
 
 The old Gematria method can still be fun. Would you like to calculate The Number of Your Name! on [https://www.gematrix.org/](https://www.gematrix.org/) ... let us know what you find out!
