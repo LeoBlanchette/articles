@@ -161,7 +161,7 @@ Multiply **Weighed** x **Divided** for both Daniel 5 (Belshazzar) and Revelation
 - **20 x 600 = 12,000**  
 - **1,200 x 120 = 144,000**
 
-These results aren't random. They both relate to the tribes of Israel (not to be mistaken for population counts, but rather symbolic proportions relating to the 12 tribes).
+These results aren't random. They both relate to the tribes of Israel.
 
 - **12,000**, **144,000**
 
