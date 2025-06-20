@@ -40,6 +40,8 @@ After referencing the account of Nebuchadnezzar (who became a beast), he proceed
 > **Tekel**; Thou art weighed in the balances, and art found wanting.  
 > **Peres**; Thy kingdom is divided, and given to the Medes and Persians.
 
+**See endnotes for detailed insights on full meaning.**
+
 So the full judgment process is clearly shown:
 
 | Mene Mene | Tekel | Upharsin |
@@ -79,8 +81,16 @@ The original language preserved this separation, and so should we.
 While both add to the same total, the separation is intentional and meaningful.
 
 > **Note on the Greek Text:**  
-> The phrase **"six hundred threescore and six"** in Revelation 13:18 is rendered in the original Greek as *hexakosioi hexekonta hex* -- **three distinct cardinal terms** for *600*, *60*, and *6*. This is not a compact numeral (e.g. `χξϛ` = 666), but a deliberate, **tripartite construction**.  
+> The phrase **"six hundred threescore and six"** in Revelation 13:18 is rendered in the original Greek as:  
+> *hexakosioi hexēkonta hex* (ἑξακόσιοι ἑξήκοντα ἕξ)  
+> *(pronounced: hek-sah-KOH-see-oi hek-SAY-kon-tah hex)*  
 >  
+> These are **three distinct cardinal terms** for *600*, *60*, and *6*.  
+>  
+> This is not a compact numeral (such as `χξϛ` = 666), but a deliberate, **tripartite construction**.  
+> The separation mirrors the structure found in Daniel’s judgment: **Counted -> Weighed -> Divided**.
+
+
 > The separation is textual, not interpretive. This precision implies a structural breakdown and invites analysis along those divisions. Since our model depends on the integrity of the Counted -> Weighed -> Divided formula, this linguistic partition is **foundational, not optional**.
 
 
@@ -345,6 +355,95 @@ Compare Enoch...
 > which deny the name of the Lord of Spirits, and being dragged off:  
 > and they could not abide because of the punishment  
 > which proceeds from the Lord of Spirits.
+
+### Mene Mene, Tekel Upharsin: Full Detail
+#### Aramaic Words from Daniel 5:25
+
+> **Original Script (Daniel 5:25)**  
+> מְנֵא מְנֵא, תְּקֵל וּפַרְסִין  
+> *Mene Mene, Tekel Upharsin*
+
+| Aramaic      | Transliteration    | Pronunciation     |
+|--------------|--------------------|--------------------|
+| מְנֵא         | *mĕnē*              | *MEN-ay*           |
+| תְּקֵל         | *təqēl*             | *teh-KEL*          |
+| וּפַרְסִין      | *ūp̄arsīn*           | *oo-FAR-seen*      |
+
+---
+
+#### Meaning in Context
+
+Each term in Daniel 5:26–28 is interpreted by Daniel with both **literal** and **judgment-oriented** meanings.
+
+#### **Mene** (מְנֵא)
+- **Literal Meaning:** *Numbered*
+- **Daniel’s Interpretation:**  
+  *"God hath numbered thy kingdom, and finished it."*
+- **Root Verb:** *manah* — to count, assign
+- **Nuance:** The repetition (*Mene, Mene*) implies **certainty and urgency**, like in Genesis 41:32.
+- **Theological Meaning:**  
+  All days, deeds, and stewardship have been **accounted for**. Nothing was omitted.
+
+---
+
+#### **Tekel** (תְּקֵל)
+- **Literal Meaning:** *Weighed*
+- **Daniel’s Interpretation:**  
+  *"Thou art weighed in the balances, and art found wanting."*
+- **Root Verb:** *teqal* — to weigh
+- **Nuance:**  
+  Echoes both the act of weighing and the result of being **too light**. A metaphor for moral or spiritual deficiency.
+- **Theological Meaning:**  
+  Divine evaluation has occurred. The kingdom (or person) is found **lacking**.
+
+---
+
+#### **Upharsin** (וּפַרְסִין) / **Peres** (פְּרֵס)
+- **Literal Meaning:** *Divided* or *Broken*
+- **Daniel’s Interpretation:**  
+  *"Thy kingdom is divided, and given to the Medes and Persians."*
+- **Root Verb:** *paras* — to break, divide
+- **Nuance:**  
+  - Wordplay: *Peres* sounds like *Paras* (Persia)  
+  - The use of *upharsin* (plural participle) vs. *peres* (singular) supports **prophetic double-meaning**.
+- **Theological Meaning:**  
+  The judgment leads to **transfer of stewardship**. What was held is **split** and given to others.
+
+---
+
+#### Summary Table
+
+| Word         | Pronunciation | Literal Meaning | Daniel’s Interpretation                        | Nuance / Wordplay                                      |
+|--------------|----------------|------------------|--------------------------------------------------|---------------------------------------------------------|
+| **Mene**     | *MEN-ay*       | Numbered         | God has **numbered** your kingdom               | Repeated = certainty. Echoes divine accounting.         |
+| **Tekel**    | *teh-KEL*      | Weighed          | You are **weighed** and found wanting           | Implies “lightness” – spiritually deficient.            |
+| **Peres** / **Upharsin** | *PER-es* / *oo-FAR-seen* | Divided / Divisions | Your kingdom is **divided** and given to others | Wordplay: *Parsin* = divisions; sounds like *Persians*. |
+
+---
+
+#### Grammatical and Theological Notes
+
+- All three terms are **past participles**: the actions are **complete**.
+  - *Counted* (not “being counted”)
+  - *Weighed* (not “under review”)
+  - *Divided* (not “to be divided”)
+- This perfect tense affirms that God's **judgment is sealed**.
+- The use of **monetary words** (weights: mina, shekel) makes this a **divine financial audit**.
+
+> The king’s reign was counted like coins, judged like gold, and split like spoil.
+
+---
+
+#### Closing Insight on Mene Mene, Tekel Upharsin
+
+This isn't just a riddle—it’s a **legal indictment** in God's courtroom.  
+The pattern (Counted -> Weighed -> Divided) becomes a **template** for judgment—applied again in Revelation 13 (666), Jesus' parables (Minas & Talents), and echoed in apocalyptic literature like 1 Enoch.
+
+> “Thou art weighed in the balances…”  
+> All stewardship will be.
+
+---
+
 
 ## BONUS MATERIAL 
 
