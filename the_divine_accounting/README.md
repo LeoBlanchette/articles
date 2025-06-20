@@ -338,7 +338,7 @@ Thus, whether in prophecy or parable, **divine judgment follows the same mathema
 
 ---
 
-Each of these passages reinforces the theme of **divine reversal**--where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful, either as **judgment** or as a form of **righteous inheritance**. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
+Each of these passages reinforces the theme of **divine reversal**--where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
 
 ## End Notes
 
