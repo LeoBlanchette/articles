@@ -161,9 +161,9 @@ Multiply **Weighed** x **Divided** for both Daniel 5 (Belshazzar) and Revelation
 - **20 x 600 = 12,000**  
 - **1,200 x 120 = 144,000**
 
-These results aren't random. They match exactly with the **tribal structure of Israel** in Revelation:
+These results aren't random. They both relate to the tribes of Israel (not to be mistaken for population counts, but rather symbolic proportions relating to the 12 tribes).
 
-- **12,000 per tribe** x 12 = **144,000**
+- **12,000**, **144,000**
 
 This confirms that the **Weighed and Divided values are not just symbolic--they are directly tied to inheritance and judgment in favor of Israel**.
 
@@ -177,7 +177,7 @@ In Revelation: **1,200 x 120 = 144,000**
 > That’s why *1200 × 120 = 144,000* is not mystic--it’s a faithful reversal of divine division into divine inheritance.
 
 
-These totals match Israel's structure: **12,000** and **144,000**, confirming that divine redistribution follows precise math. The contrast between the **12,000** in the Daniel 5 case and the **144,000** in the Revelation 13 case shows the greater **magnitude of redemption** between the two accounts, both relating to Israel.
+These totals match Israel's structure: **12,000** and **144,000**, confirming that divine redistribution follows precise math. The contrast between the **12,000** in the Daniel 5 case and the **144,000** in the Revelation 13 case shows the **magnitude of redemption** between the two accounts, both relating to Israel.
 
 So again, the values in **Gerahs** imply a process having to do with **redemption**. The **144,000** recieve the kingdom of the beast (Revelation 11:15, Luke 12:32, Revelation 2:27). This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
 
