@@ -52,11 +52,11 @@ In Daniel 5, **"the man who hath understanding"** demonstrates how to **count th
 
 ### The Framework 
 
->   Unlike numerology or gematria, this method:
-> - Uses only **biblical units**: minas, shekels, gerahs (Ezekiel 45:12)
-> - Anchors values to **canonical judgment scenes** (Daniel 5, Revelation 13)
-> - Produces **measurable, transferable results**--like the 144,000 inheritance
-> - Requires **no assumptions**, only interpretation of what's already there
+Unlike numerology or gematria, this method:
+- Uses only **biblical units**: minas, shekels, gerahs (Ezekiel 45:12)
+- Anchors values to **canonical judgment scenes** (Daniel 5, Revelation 13)
+- Produces **measurable, transferable results**--like the 144,000 inheritance
+- Requires **no assumptions**, only interpretation of what's already there
 
 
 ### The Weights, Measures, and Monetary Standard
@@ -368,7 +368,7 @@ If you were to apply the 'Counted, Weighed, Divided' judgment to your own life (
 
 #### Did This Article Miss a Key Scripture? 
 
-Alot of scriptures were recalled to build this case. Did you read through and think, 'Hey, what about [insert specific verse here]?' If you know of other Bible verses that powerfully reinforce the 'wealth of the wicked transferred to the righteous' theme, or the 'Counted/Weighed/Divided' judgment, drop them in the comments! 
+A lot of scriptures were recalled to build this case. Did you read through and think, 'Hey, what about [insert specific verse here]?' If you know of other Bible verses that powerfully reinforce the 'wealth of the wicked transferred to the righteous' theme, or the 'Counted/Weighed/Divided' judgment, drop them in the comments! 
 
 ---
 
