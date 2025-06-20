@@ -177,9 +177,9 @@ In Revelation: **1,200 x 120 = 144,000**
 > That’s why *1200 × 120 = 144,000* is not mystic--it’s a faithful reversal of divine division into divine inheritance.
 
 
-These totals match Israel's structure: **12,000 x 12 = 144,000**, confirming that divine redistribution follows precise math.
+These totals match Israel's structure: **12,000** and **144,000**, confirming that divine redistribution follows precise math. The contrast between the **12,000** in the Daniel 5 case and the **144,000** in the Revelation 13 case shows the greater **magnitude of redemption** between the two accounts, both relating to Israel.
 
-The values in Gerahs imply a process having to do with redemption. The **144,000** recieve the kingdom of the beast (Revelation 11:15, Luke 12:32, Revelation 2:27). This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
+So again, the values in **Gerahs** imply a process having to do with **redemption**. The **144,000** recieve the kingdom of the beast (Revelation 11:15, Luke 12:32, Revelation 2:27). This is implied in the framework: "Divided" is that which is given to another kingdom. In this case, the kingdom of the world goes to the elect. 
 
 See the Process--Converted to Minas
 
