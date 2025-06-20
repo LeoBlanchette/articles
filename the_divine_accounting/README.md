@@ -171,7 +171,11 @@ Multiplying **Weighed x Divided** helps reconstruct the total value *being reass
 In Daniel: **20 x 600 = 12,000**  
 In Revelation: **1,200 x 120 = 144,000**
 
-This isn't numerology. This multiplication reveals the reverse of Peres--the reassignment of what was divided.
+> **Note:**  
+> This isn’t numerology. This multiplication represents the *reverse of Peres* — the restoration of what had been divided.  
+> Since “divided” is past-tense (Upharsin), reversing it requires a future-facing action: multiplication.  
+> That’s why *1200 × 120 = 144,000* is not mystic--it’s a faithful reversal of divine division into divine inheritance.
+
 
 These totals match Israel's structure: **12,000 x 12 = 144,000**, confirming that divine redistribution follows precise math.
 
@@ -208,6 +212,8 @@ We have shown the method by which the number is counted, and the system at work,
 This scripture, Psalms 90:12 fits the subject well, if you read the entire context: https://www.kingjamesbibleonline.org/Psalms-90-12/
 
 It is better not to presume to say what has been counted or named, but rather we have identified the system wherein it is done. God alone knows the hearts and weighs the spirits. He is our life, and length of our days. 
+
+> **Proverbs 16:2** - All the ways of a man are clean in his own eyes; but **the LORD weigheth the spirits**.
 
 > **Job 3:16** - Let me be weighed in an even balance, that God may know mine integrity. 
 
@@ -282,8 +288,6 @@ This perfectly mirrors the **Mene, Tekel, Peres** structure:
 | Peres  | Divided   | Reward or judgment administered  |
 
 Thus, whether in prophecy or parable, **divine judgment follows the same mathematical audit: Counted -> Weighed -> Divided.**
-
-## Verses Connecting to this Theme 
 
 ## Scriptures on the Transfer of Wealth from the Wicked to the Righteous
 
