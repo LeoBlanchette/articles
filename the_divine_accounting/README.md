@@ -324,17 +324,33 @@ Thus, whether in prophecy or parable, **divine judgment follows the same mathema
 
 ---
 
-Each of these passages reinforces the theme of **divine reversal**—where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful, either as **judgment** or as a form of **righteous inheritance**. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
+Each of these passages reinforces the theme of **divine reversal**--where the wealth accumulated unjustly by the wicked is eventually transferred to the faithful, either as **judgment** or as a form of **righteous inheritance**. This principle is central to the *Counted -> Weighed -> Divided* structure and is reflected in the fate of Belshazzar, the Beast, and the unfaithful stewards in Jesus' parables.
+
+## End Notes
+
+### Accounting After Natural Life Ends...
+
+Have you noticed in Revelation, how the 144,000 are sealed before death? They are empowered after martyrdom.
+
+> **Proverbs 14:32** The **wicked is driven away** in his wickedness: but the **righteous hath hope in his death**.
+
+Compare Enoch...
+
+> **1 Enoch 41:1–2 (R.H. Charles Translation)**  
+> And after that I saw all the secrets of the heavens,  
+> and **how the kingdom is divided**,  
+> and **how the actions of men are weighed in the balance**.  
+> And there I saw the **mansions of the elect and the mansions of the holy**,  
+> and mine eyes saw there all the **sinners being driven from thence**  
+> which deny the name of the Lord of Spirits, and being dragged off:  
+> and they could not abide because of the punishment  
+> which proceeds from the Lord of Spirits.
 
 ## BONUS MATERIAL 
 
 The old Gematria can still be fun. Would you like to calculate The Number of Your Name! on https://www.gematrix.org/ ... let us know what you find out! 
 
-Okay, here are the improved bonus material suggestions in Markdown (.md) format, excluding the quick poll, and suitable for a Reddit post.
-
 ---
-
-### BONUS MATERIAL
 
 #### The Number of YOUR Name!
 
@@ -369,6 +385,8 @@ Or
 `144000 / 6^3 = 666.666...`
 
 Dividing **144,000** by **6** exactly **3** times gives us **666.666..?** What does that tell you mathematically? 
+
+---
 
 Original article here: 
 
