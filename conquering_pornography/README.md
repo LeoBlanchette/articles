@@ -1,4 +1,3 @@
-```markdown
 ![She hunts you for them.](images/demonic_seduction.png)
 
 A man's most powerful enemy is not another man. It is a woman.
@@ -178,4 +177,3 @@ This isn't just a **personal triumph**—it is a **major step to escaping death*
 > - Many infections are **asymptomatic**, allowing them to spread silently—mirroring the unseen spiritual decay that often accompanies them.
 
 > *“Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.”* > — Galatians 6:7 (KJV)
-```
