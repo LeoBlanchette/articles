@@ -73,7 +73,7 @@ This is why demonic spirits are allowed free entry into many "Christians".
 **"I go to Church! I pray!"**
 
 You might still be stuck in a **counterfeit religion**, and that is a big part of the problem. 
-> Sometimes the **Christian walk of faith** means leaving behind the **fake Christians**.
+Sometimes the **Christian walk of faith** means leaving behind the **fake Christians**.
 
 ---
 
