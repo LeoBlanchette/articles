@@ -179,3 +179,10 @@ This isn't just a **personal triumph**—it is a **major step to escaping death*
 > - Many infections are **asymptomatic**, allowing them to spread silently—mirroring the unseen spiritual decay that often accompanies them.
 
 > *“Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.”* > — Galatians 6:7 (KJV)
+
+
+## Who is the Great Harlot?
+
+Want to know more about this powerful foe? Here is an article giving a deep revelation concerning The Great Harlot, and who she is. It is better to read than the article above: 
+
+https://www.reddit.com/r/trueearthscience/comments/18x2a0q/who_is_the_great_harlot_babylon_the_great_of/
