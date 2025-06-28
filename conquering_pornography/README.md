@@ -143,8 +143,6 @@ Once you recognize this, you make a great leap forward in your **power**, becaus
 
 This isn't just a **personal triumph**--it is a **major step to escaping death**.
 
----
-
 > **2 Peter 2:6–9 (KJV)**  
 > *“And turning the cities of Sodom and Gomorrha into ashes condemned them with an overthrow, making them an ensample unto those that after should live ungodly;  
 > And delivered just Lot, vexed with the filthy conversation of the wicked…  
@@ -158,6 +156,64 @@ This isn't just a **personal triumph**--it is a **major step to escaping death**
 > *“The fear of the Lord is a fountain of life, to depart from the snares of death.”*
 
 
+## Bonus Material 
 
+### 📊 Bonus Material: The Economics of OnlyFans
 
+> **Platform Overview**  
+> - **305 million+ fan accounts**  
+> - **4.19 million creator accounts**  
+> - **$6.6 billion** in gross site volume (2023)  
+> - **$1.3 billion** in platform revenue (2023)  
+> - **$5.35 billion** paid out to creators in 2023
 
+> **Creator Demographics & Earnings**  
+> - **70%** of creators are women; **30%** are men  
+> - Average creator earns **$150–$180/month**  
+> - Top 1% of creators earn **nearly one-third** of all revenue  
+> - Only **300 creators** earn over **$1 million/year**  
+> - Around **16,000 creators** earn **$50,000+/year**
+
+> **User Behavior & Revenue Flow**  
+> - Only **4.2%** of subscribers spend money; **95.8%** spend nothing  
+> - Average paying subscriber spends **$48.52 per creator**  
+> - **Messages** account for **69.74%** of revenue; subscriptions only **4.11%**  
+> - **Top 0.1%** of creators capture **76%** of all revenue  
+> - **Weekends** drive nearly **30%** of total revenue
+
+> **Cultural Insight**  
+> - The platform’s top earners are often marketed as “empowered,” but the data reveals a **hyper-concentrated economy** where a tiny elite profits while the vast majority earn little.  
+> - The **feedback loop of lust and monetization** is not just personal—it’s industrial.
+
+> *“For by means of a whorish woman a man is brought to a piece of bread…”*  
+> — Proverbs 6:26 (KJV)
+
+### 🧬 Bonus Material: The Hidden Epidemic — HIV & STDs in Society
+
+> **Global HIV Snapshot (2023–2025)**  
+> - **39.9 million** people globally are living with HIV  
+> - **1.3 million** new infections occurred in 2023  
+> - **630,000** people died from AIDS-related illnesses in 2023  
+> - **77%** of people living with HIV are accessing treatment  
+> - **86%** know their HIV status, but **5.4 million** still do not
+
+> **U.S. STD Statistics (CDC estimates)**  
+> - **1 in 5 Americans** (about **68 million**) currently have an STD  
+> - **Nearly 26 million** new STD infections occur annually in the U.S.  
+> - **Chlamydia, gonorrhea, and syphilis** are at record highs  
+> - **Young people (15–24)** account for **nearly half** of all new infections  
+> - **Black and Latino communities** are disproportionately affected
+
+> **HIV Prevalence by Country (2023)**  
+> - **Eswatini**: 27.5% of adults  
+> - **Lesotho**: 20.5%  
+> - **South Africa**: 16.6%  
+> - **United States**: ~0.3% (approx. 1.2 million people)
+
+> **Cultural Insight**  
+> - Despite medical advances, **sexual health remains a spiritual and social battleground**.  
+> - The normalization of promiscuity and digital lust culture has **desensitized society to the consequences**.  
+> - Many infections are **asymptomatic**, allowing them to spread silently—mirroring the unseen spiritual decay that often accompanies them.
+
+> *“Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.”*  
+> — Galatians 6:7 (KJV)
