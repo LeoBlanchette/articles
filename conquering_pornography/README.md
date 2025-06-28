@@ -76,6 +76,19 @@ Surprise: **some churches actually encourage the desires of lust.** Most people 
 
 This is why demonic spirits are allowed free entry into many "Christians".
 
+> **"I go to Church! I pray!"**  
+> You might still be stuck in a **counterfeit religion**, and that is a big part of the problem.  
+> Sometimes the **Christian walk of faith** means leaving behind the **fake Christians**.
+
+---
+
+> **2 Timothy 3:5 (KJV)**  
+> *“Having a form of godliness, but denying the power thereof: from such turn away.”*
+
+> **Matthew 7:21–23 (KJV)**  
+> *“Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven...  
+> And then will I profess unto them, I never knew you: depart from me, ye that work iniquity.”*
+
 ### Spiritual Association - The Demonic 
 
 ![Demonic Association](images/hellish.png)
@@ -87,6 +100,62 @@ So you must actually acknowledge this and **pray for the Lord to expel the devil
 The Lord will deliver you, if you acknowledge the **sin** and desire to remove yourself from it. Then the **devils** will be forced to depart. Sometimes it is physically **noticeable** when they do leave.
 
 Most **Christians** do not know this: A **demon** cannot enter a person without **God's permission**. Also, they leave by **His order**.
+
+### The Obvious 
+
+**After receiving help from God**, be sure that you have certainly rid yourself of all of these things that perpetuate the **habit**. **Do not go back to them.**  
+When God knows you are ready to depart from evil, **He will make the way open**.  
+If He sees you are not ready to leave this practice in your heart, you may find the **desires do not leave**.
+
+> **Ephesians 4:22–24 (KJV)**  
+> *"That ye put off concerning the former conversation the old man, which is corrupt according to the deceitful lusts;  
+> And be renewed in the spirit of your mind;  
+> And that ye put on the new man, which after God is created in righteousness and true holiness."*
+
+> **1 Corinthians 10:13 (KJV)**  
+> *"There hath no temptation taken you but such as is common to man: but God is faithful,  
+> who will not suffer you to be tempted above that ye are able;  
+> but will with the temptation also make a way to escape, that ye may be able to bear it."*
+
+> **James 1:14–15 (KJV)**  
+> *"But every man is tempted, when he is drawn away of his own lust, and enticed.  
+> Then when lust hath conceived, it bringeth forth sin: and sin, when it is finished, bringeth forth death."*
+
+Obviously, I do not have to speak concerning the physical aspect of these habits.  
+**Lust must be abandoned entirely.**
+
+> **Colossians 3:5 (KJV)**  
+> *"Mortify therefore your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry."*
+
+> **Galatians 5:24 (KJV)**  
+> *"And they that are Christ's have crucified the flesh with the affections and lusts."*
+
+> **1 Peter 2:11 (KJV)**  
+> *"Dearly beloved, I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul."*
+
+## Conclusion 
+
+**This is a hard fight.**  
+Do you live in America? You have effectively been born into **Sodom and Gomorrah**, raised in it, and learned its ways.  
+It can be hard to see a different perspective when the world around you functions on **lust**.
+
+Once you recognize this, you make a great leap forward in your **power**, because you’ve identified a **major snare** that you are now able to overcome.
+
+This isn't just a **personal triumph**--it is a **major step to escaping death**.
+
+---
+
+> **2 Peter 2:6–9 (KJV)**  
+> *“And turning the cities of Sodom and Gomorrha into ashes condemned them with an overthrow, making them an ensample unto those that after should live ungodly;  
+> And delivered just Lot, vexed with the filthy conversation of the wicked…  
+> The Lord knoweth how to deliver the godly out of temptations…”*
+
+> **Ephesians 5:8–11 (KJV)**  
+> *“For ye were sometimes darkness, but now are ye light in the Lord: walk as children of light…  
+> And have no fellowship with the unfruitful works of darkness, but rather reprove them.”*
+
+> **Proverbs 14:27 (KJV)**  
+> *“The fear of the Lord is a fountain of life, to depart from the snares of death.”*
 
 
 
