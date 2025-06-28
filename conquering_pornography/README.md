@@ -37,7 +37,7 @@ You can observe a pattern in the Scriptures: there is a strong connection betwee
 
 > **2 Kings 9:30 (KJV)** > *“And when Jehu was come to Jezreel, Jezebel heard of it; and she painted her face, and tired her head, and looked out at a window.”*
 
-This symbolic act wasn’t just vanity—it was a form of manipulation, a last attempt at control through allure. In the biblical imagination, painting the eyes becomes a ritual of rebellion, a performance of false power.
+This symbolic act wasn’t just vanity—it was a form of manipulation, a last attempt at control through allure. In the biblical patterns, painting the eyes becomes a ritual of rebellion, a performance of false power.
 
 > **Revelation 2:20 (KJV)** > *"Notwithstanding I have a few things against thee, because thou sufferest that woman Jezebel, which calleth herself a prophetess, to teach and to seduce my servants to commit fornication, and to eat things sacrificed unto idols."*
 
